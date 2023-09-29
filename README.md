@@ -4,7 +4,7 @@
 - You can check my shortfilms here via www.k3b3a.com
 - 🌱 I’m currently learning Python with PyCharm (beginner level).
 - 💞️ I’m looking to collaborate on film industry projects (when ready).
-- 📫 Contact me via via www.k3b3a.com
+- 📫 Contact me via www.k3b3a.com
 - Thanks and have a great day!
 
 <!---
