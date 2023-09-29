@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @c0de4l1fe
+- 👋 Hi,
 - Thanks for taking the time to read this.
 - 👀 I’m also interested in the film industry (writing, casting, shooting, editing, sharing).
 - You can check my shortfilms here via www.k3b3a.com
