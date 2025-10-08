@@ -1,6 +1,5 @@
 - 👋 Hi,
 - Thanks for taking the time to read this.
-- 👀 I’m also interested in the film industry (writing, casting, shooting, editing, sharing).
 - Thanks and have a great day!
 
 <!---
